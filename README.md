@@ -10,3 +10,5 @@
 
 I'm a lesbian, i love Reverse1999, and both Western and Chinese Opera. I'm mostly in ponytown due to friends hanging out with me, feel free to approach me since i don't really mind unless you're really weird about it. I don't mind chatting unless i'm tired or the topic's too uncomfortable for me.
 > You're free to cuddle and hug me, if that's what you prefer ; [Atabook Guestbook](https://vensu.atabook.org/)! Totally free to leave a messsage c:
+
+<img width="140" src="https://komarev.com/ghpvc/?username=hemarisdiffinis&color=b00b1e" alt="views count">
