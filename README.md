@@ -6,7 +6,7 @@
 
 <p align=center>Ven / Vick / Lianxia | She/Her | 19 years old.
 <p align=center><img width="400" src="https://i.ibb.co/cc1BDcL2/125948395-ZYDR4m02u4d-HQKS.png" alt="meiblossomgoose"></p>
-<p align=center>【Freelance illustrator；[Vgen](https://vgen.co/Emitvensugarti) | [Toyhou.se](https://toyhou.se/Snowberry-Vernia) | [小红书](https://www.xiaohongshu.com/user/profile/66172842000000000700421e) 】</p>
+<p align=center>【Freelance illustrator； Vgen@Emitvensugart | Toyhou.se@SnowberryVernia 】</p>
 
 I'm a lesbian, i love Reverse1999, and both Western and Chinese Opera.
 
