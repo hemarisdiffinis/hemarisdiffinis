@@ -8,7 +8,8 @@
 <p align=center><img width="400" src="https://i.ibb.co/cc1BDcL2/125948395-ZYDR4m02u4d-HQKS.png" alt="meiblossomgoose"></p>
 <p align=center>$\textcolor{red}{\textsf{【Freelance illustrator； Vgen@Emitvensugarti | Toyhou.se@SnowberryVernia 】}}$</p>
 
-I'm a lesbian, i love alot of fandoms/characters most notably on Reverse1999, and i do have an interest in both Western and Chinese Opera. I'm mostly in ponytown due to my brother and a few friends hanging out with me, feel free to approach me since i don't really mind unless you're really weird about it. I don't mind chatting unless i'm tired, or the topic's too uncomfortable for me. Plus i could use more friends...
-> You're free to cuddle and hug me, if that's what you prefer and pleaseee int! ; [Atabook Guestbook](https://vensu.atabook.org/)! Totally free to leave a messsage c:
+I'm a lesbian, i love alot of fandoms/characters most notably on Reverse1999, and Umamusume. 我的中文不好. I'm mostly in ponytown due to my brother and a few friends hanging out with me, feel free to approach me since i don't really mind unless you're really weird about it. I don't mind chatting unless i'm tired, or the topic's too uncomfortable for me. Plus i could use more friends...
+> You're free to cuddle and hug me, if that's what you prefer. And pleaseee int with me!
+; [Atabook Guestbook](https://vensu.atabook.org/)! Totally free to leave a messsage c:
 
 <img width="140" src="https://komarev.com/ghpvc/?username=hemarisdiffinis&color=b00b1e" alt="views count">
